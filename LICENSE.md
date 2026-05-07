@@ -1,4 +1,4 @@
-
+smart Scripts for hypershot is the best hypershot Script, featuring auto-sell and fly. Safe and powerful for all your needs.
 
 
 
